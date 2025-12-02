@@ -9,12 +9,6 @@ Let’s connect and create something meaningful together!
 
 
 
-🎪: [My Website](https://mariaobry.myportfolio.com)
-
-:globe_with_meridians: [My LinkedIn Page](https://www.linkedin.com/in/mariaobry/)
-
-:framed_picture: [My Work on Behance](https://www.behance.net/mariaobry)
-
- :last_quarter_moon: [Instagram](https://www.instagram.com/bymarladesigns/)
+🎪: [My Website](https://mariaobry.myportfolio.com)  :globe_with_meridians: [My LinkedIn Page](https://www.linkedin.com/in/mariaobry/) :framed_picture: [My Work on Behance](https://www.behance.net/mariaobry)  :last_quarter_moon: [Instagram](https://www.instagram.com/bymarladesigns/)
 
 
