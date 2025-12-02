@@ -6,6 +6,15 @@ Inspiration finds me in the wild—through travel, photography, and nature (with
 I'm endlessly curious and thrive on challenges that push my creativity further. Whether it’s designing a user-friendly interface or building a visual identity from the ground up, I bring a mix of strategic thinking and artistic intuition to every project. Collaboration fuels my process, and I’m always eager to work with others who are passionate about what they do.
 
 Let’s connect and create something meaningful together!
-For inquiries: https://mariaobry.myportfolio.com
+
+
+
+🎪: [My Website](https://mariaobry.myportfolio.com)
+
+:globe_with_meridians: [My LinkedIn Page](https://www.linkedin.com/in/mariaobry/)
+
+:framed_picture: [My Work on Behance](https://www.behance.net/mariaobry)
+
+ :last_quarter_moon: [Instagram](https://www.instagram.com/bymarladesigns/)
 
 
